@@ -38,3 +38,6 @@ Start here: [FAQs](https://function3d.xyz/)
   Follow me on [Youtube](https://www.youtube.com/channel/UC4UBuZ5YRTo5XYFUxdkmqkg), [Tiktok](https://www.tiktok.com/@function.3d) and [Instagram](https://www.instagram.com/function.3d/) for more tutorials and information.
 
 
+
+## Koszt 
+- +/- 100/150zł  za części z alli resta do wydruku.
